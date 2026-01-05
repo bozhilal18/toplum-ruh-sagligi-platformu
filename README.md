@@ -1,0 +1,1 @@
+# toplum-ruh-sa-l-l-platformu
