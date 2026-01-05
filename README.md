@@ -1,1 +1,1 @@
-# toplum-ruh-sa-l-l-platformu
+# toplum-ruh-sagligi-platformu
